@@ -14,7 +14,7 @@
 
 ![telegram-cloud-photo-size-2-5264844828280219257-y](https://github.com/user-attachments/assets/b5e34206-63f3-4b7b-828e-b9ece5a1beaa)
 
-![Uploading telegram-cloud-photo-size-2-5264844828280219258-y.jpg…]()
+![telegram-cloud-photo-size-2-5264844828280219258-y](https://github.com/user-attachments/assets/0c3d6183-9071-46b9-bbc7-a5b4a19f9edd)
 
 
 Tula is a city rich in history and traditions, with samovars and gingerbread as its beloved symbols—integral parts of Russian culture. 
@@ -40,7 +40,9 @@ A stroll through the avenues of his estate and a tour of the house-museum transp
 
 ![telegram-cloud-photo-size-2-5264844828280219285-y](https://github.com/user-attachments/assets/685371c9-f709-4a82-a68b-5188b3d8a0bb)
 
-![telegram-cloud-photo-size-2-5264844828280219285-y](https://github.com/user-attachments/assets/9a3ecf07-3d6b-45ef-9727-986d741f724f)
+![telegram-cloud-photo-size-2-5264844828280219276-y](https://github.com/user-attachments/assets/2f35faa2-08df-4261-86ff-ab2dd40847ed)
+
+
 
 Excursion Plan to Yasnaya Polyana and Tula
 
